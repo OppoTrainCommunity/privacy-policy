@@ -38,4 +38,4 @@ We may update or modify this Data Privacy Policy from time to time. Any signific
 By submitting your information and participating in the alpha program, you confirm that you have read, understood, and agreed to the terms outlined in this Privacy Policy.
 
 ### Contact Us
-If you have any questions, please contact us by email: botopportrain@gmail.com
+If you have any questions, please contact us by email: team@oppotrain.com
